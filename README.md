@@ -3,7 +3,7 @@
 **CONTACT:** [info@parklandpledge.com](mailto:info@parklandpledge.com)
 **SOCIAL MEDIA:** [Instagram](https://instagram.com/parklandpledge/) - [Facebook](http://facebook.com/parklandpledge/)
 
-## This is the official page of the Parkland Pledge, a student-lead protest movement for common-sense gun reform.
+#### This is the official page of the Parkland Pledge, a student-lead protest movement for common-sense gun reform.
 
 ## The Parkland Pledge:
 
